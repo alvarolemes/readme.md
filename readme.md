@@ -17,7 +17,11 @@ Moro em Campanha - MG :world
 - Jogar bola
 - Beber cerveja
 - Trabalhar
+- Ler
 
 ## Meus contatos
 
 alvarorlemes@hotmail.com
+@alvaroribeirolemes
+
+
