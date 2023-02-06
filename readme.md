@@ -21,7 +21,7 @@ Moro em Campanha - MG :world
 
 ## Meus contatos
 
-alvarorlemes@hotmail.com
-@alvaroribeirolemes
+- alvarorlemes@hotmail.com
+- @alvaroribeirolemes
 
 
